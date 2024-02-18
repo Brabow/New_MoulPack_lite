@@ -1,0 +1,1 @@
+Go to the [New MoulPack's changelog page](https://thunderstore.io/c/lethal-company/p/Le_Moulin/New_MoulPack/changelog/) for the full changelog (just ignore all the cosmetic related features)
